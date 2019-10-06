@@ -173,6 +173,7 @@ What good is it to have writers like this (such as [Bakhtiar Ali] and Khaled Hos
 
 It is not far from us that they occasionally launch such contemplative novels and, in addition to representing culture and pain, ...
 
+<p style="text-align:right">
 
 کتاب صوتی آخرین انار دنیا
  
@@ -193,3 +194,5 @@ It is not far from us that they occasionally launch such contemplative novels an
 نام رمان ( و نه «داستان» بلند ) را روی این اثر بگذاریم.
 
  [برای دانلود کتاب صوتی آخرین انار دنیا کلیک نمایید](https://mokas.ir/%D8%AF%D8%A7%D9%86%D9%84%D9%88%D8%AF-%DA%A9%D8%AA%D8%A7%D8%A8-%D8%A2%D8%AE%D8%B1%DB%8C%D9%86-%D8%A7%D9%86%D8%A7%D8%B1-%D8%AF%D9%86%DB%8C%D8%A7-%D8%A8%D8%AE%D8%AA%DB%8C%D8%A7%D8%B1-%D8%B9%D9%84%DB%8C/)
+ 
+ </p>
