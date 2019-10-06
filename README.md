@@ -3,7 +3,7 @@
 
 Download The World's Last Pomegranate Book pdf [Bakhtiar Ali]
 
-[download](https://mokas.ir/%D8%AF%D8%A7%D9%86%D9%84%D9%88%D8%AF-%DA%A9%D8%AA%D8%A7%D8%A8-%D8%A2%D8%AE%D8%B1%DB%8C%D9%86-%D8%A7%D9%86%D8%A7%D8%B1-%D8%AF%D9%86%DB%8C%D8%A7-%D8%A8%D8%AE%D8%AA%DB%8C%D8%A7%D8%B1-%D8%B9%D9%84%DB%8C/)
+[he World's Last Pomegranate](https://mokas.ir/%D8%AF%D8%A7%D9%86%D9%84%D9%88%D8%AF-%DA%A9%D8%AA%D8%A7%D8%A8-%D8%A2%D8%AE%D8%B1%DB%8C%D9%86-%D8%A7%D9%86%D8%A7%D8%B1-%D8%AF%D9%86%DB%8C%D8%A7-%D8%A8%D8%AE%D8%AA%DB%8C%D8%A7%D8%B1-%D8%B9%D9%84%DB%8C/)
 He came to the market with a translation of Arash's sobering winter of 88 by Nashrafaraz.
 
  
@@ -180,5 +180,16 @@ It is not far from us that they occasionally launch such contemplative novels an
  
  مثل آن بیابان است؟  (ص 164)  كتاب [آخرین انار دنیا ] در نگاه و خوانش اول تصویری است پاره پاره از اشکهای داغ و آه سرد ملتی سرگردان؛ اما…
  
- 
- [برای دانلود کلیک نمایید](https://mokas.ir/%D8%AF%D8%A7%D9%86%D9%84%D9%88%D8%AF-%DA%A9%D8%AA%D8%A7%D8%A8-%D8%A2%D8%AE%D8%B1%DB%8C%D9%86-%D8%A7%D9%86%D8%A7%D8%B1-%D8%AF%D9%86%DB%8C%D8%A7-%D8%A8%D8%AE%D8%AA%DB%8C%D8%A7%D8%B1-%D8%B9%D9%84%DB%8C/)
+ در نگاه نخست به این اثر ، در می یابیم که با یک رمان به معنای واقعی رو به رو هستیم .
+
+در طول مسیری ( درونی و بیرونی ) که شخصیت اصلی رمان برای پیدا کردن پسرش طی می کند ، علاوه بر گشوده شدن
+
+رازهایی که بیست و یک سال از حقیقت آنها دور بوده ، «زندگی» نامه ی تک تک شخصیت های دیگر نیز برای خواننده
+
+باز گو می شوند و خواننده گاهی به موازات قصه ی اصلی ، و گاهی در خلال آن ، به ارتباط «زندگی» شخصیت های
+
+دیگر با [مظفر] صبحگاهی و پسرش ( [سریاس] صبحگاهی ) پی می‌برد ، و این خود مشخصه‌ای ممتاز است که
+
+نام رمان ( و نه «داستان» بلند ) را روی این اثر بگذاریم.
+
+ [برای دانلود کتاب صوتی آخرین انار دنیا کلیک نمایید](https://mokas.ir/%D8%AF%D8%A7%D9%86%D9%84%D9%88%D8%AF-%DA%A9%D8%AA%D8%A7%D8%A8-%D8%A2%D8%AE%D8%B1%DB%8C%D9%86-%D8%A7%D9%86%D8%A7%D8%B1-%D8%AF%D9%86%DB%8C%D8%A7-%D8%A8%D8%AE%D8%AA%DB%8C%D8%A7%D8%B1-%D8%B9%D9%84%DB%8C/)
